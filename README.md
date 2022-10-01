@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @zexehxd
 - 🌱 I’m currently learning java
-- 📫 My dc: Z3XPloitZ ϟ#1337
+- 📫 My dc: zexehxd ϟ#1337
 - 🚩 My Nationality: 🇭🇺
 
 <!---
